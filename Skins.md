@@ -1,7 +1,7 @@
 # *Antix collection of super swag skins*
 * Note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
 # Message me**__ONLY__** if a link is broken or something isn't updated or wrong 
-Discord: Antix#2
+Discord: Antix#0002
 
 # [☆ (Vaxei style)](https://antix.s-ul.eu/uOU1pwNTc) 
 ![](https://osu.ppy.sh/ss/17017303/7fed)
