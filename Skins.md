@@ -15,5 +15,5 @@ Discord: Antix#0002
 # [☆ω (Delis style)](https://antix.s-ul.eu/BN9yY7fx)
 ![](https://osu.ppy.sh/ss/17017372/aed4)
 
-# [☆彡 (Rafis style + thock hitsounds)](https://antix.s-ul.eu/t1MbQsqP)
+# [☆彡 (Rafis style + clack hitsounds)](https://antix.s-ul.eu/t1MbQsqP)
 ![](https://osu.ppy.sh/ss/17017378/660d)
