@@ -4,9 +4,14 @@
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
 
+# [CEEANTIX (Colours) *if you have the other ceeantix skin rename it since they will override*](https://antix.s-ul.eu/M5cq5d1a)
+![](https://osu.ppy.sh/ss/17681553/6b94)
+
+# [CEEANTIX (WHITE)](https://antix.s-ul.eu/ZDkT6vsJ) 
+![](https://osu.ppy.sh/ss/17681566/fe15)
+
 # [☆✧ (ryan mystia edit)](https://antix.s-ul.eu/aLoafnyh) 
 ![](https://osu.ppy.sh/ss/17382183/8e91)
-
 
 # [☆● (stoof/dustice)](https://antix.s-ul.eu/tFbPY63k) 
 ![](https://osu.ppy.sh/ss/17211196/dca7)
