@@ -4,6 +4,12 @@
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
 
+# [ika (antix edit)](https://antix.s-ul.eu/r7UBzR4Q)
+![](https://osu.ppy.sh/ss/17894946/84b0)
+
+# [shield (antix edit)](https://antix.s-ul.eu/ZzZ2I0Ow)
+![](https://osu.ppy.sh/ss/17894939/27a8)
+
 # [CEEANTIX (Colours) *if you have the other ceeantix skin rename it since they will override*](https://antix.s-ul.eu/M5cq5d1a)
 ![](https://osu.ppy.sh/ss/17681553/6b94)
 
