@@ -1,8 +1,18 @@
 # *Antix collection of super swag skins*
 * Note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
 * Late 2021 skins use MakiDonalds skin mods, Early 2022 skins use BlooXoo skin mods
+* Latest 2022 skins use this #[bg](https://antix.s-ul.eu/TiPtPaNM)
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
+
+# [Cookiezi 32 2018-08-01 edit](https://antix.s-ul.eu/COcQdHA0)
+![](https://osuskins.net/screenshots/A7Zi0U5.jpg)
+
+# [- Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
+![](https://osu.ppy.sh/ss/17714432/a1e8)
+
+# [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
+![](https://i.imgur.com/YULitvx.png)
 
 # [ika (antix edit)](https://antix.s-ul.eu/r7UBzR4Q)
 ![](https://osu.ppy.sh/ss/17894946/84b0)
