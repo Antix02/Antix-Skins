@@ -5,6 +5,12 @@
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
 
+# [- alfie_fancy_dt](https://mega.nz/file/4ToUGQDI#dmPj44bm0fZGanSS4IVtrwCTPWjjA8wud-5iboYWutY)
+![](https://osu.ppy.sh/ss/18184466/2a97)
+
+# [- ryan fancy edit](https://antix.s-ul.eu/j0n1pyhk)
+![](https://osu.ppy.sh/ss/18004901/10bd)
+
 # [Cookiezi 32 2018-08-01 edit](https://antix.s-ul.eu/COcQdHA0)
 ![](https://osuskins.net/screenshots/A7Zi0U5.jpg)
 
