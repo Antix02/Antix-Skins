@@ -5,6 +5,12 @@
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
 
+# [- jasonrobbedmalis](https://antix.s-ul.eu/C3VBkkFz)
+![](https://osu.ppy.sh/ss/18290774/b0ae)
+
+# [- jasonisinyodieland](https://antix.s-ul.eu/5KcEmYh5)
+![](https://osu.ppy.sh/ss/18290765/27bd)
+
 # [- alfie_fancy_dt](https://mega.nz/file/4ToUGQDI#dmPj44bm0fZGanSS4IVtrwCTPWjjA8wud-5iboYWutY)
 ![](https://osu.ppy.sh/ss/18184466/2a97)
 
