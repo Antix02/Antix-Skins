@@ -7,6 +7,12 @@ last updated <b>2023-01-28</b>
  * latest 2022 skins use this [bg](https://antix.s-ul.eu/TiPtPaNM)
  * message me only if a link is broken or something isn't updated or wrong <b>(discord: antix#0002)</b>
 
+# [- bocchi_dt_rafis -](https://mega.nz/file/ZC4VmJ5J#6S83-maoBkQJU1m52HaYcs068oIT7t2TiNVMRxipULE)
+![](https://i.imgur.com/7iyIPOi.png)
+
+# [5wc antix edit](https://antix.s-ul.eu/RRWwF6pu)
+![](https://osu.ppy.sh/ss/18403777/6e82) 
+
 # [- jasonrobbedmalis](https://antix.s-ul.eu/C3VBkkFz)
 ![](https://osu.ppy.sh/ss/18290774/b0ae)
 
