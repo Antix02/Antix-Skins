@@ -1,5 +1,5 @@
 # *antix collection of super swag skins*
-last updated <b>15/01/2023</b>
+last updated <b>2023-01-28</b>
  * note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
  * late 2021 skins use MakiDonalds skin mods, Early 2022 skins use BlooXoo skin mods
  * latest 2022 skins use this [BG](https://antix.s-ul.eu/TiPtPaNM)
