@@ -1,8 +1,8 @@
 # *Antix collection of super swag skins*
 <p align="center">
-* Note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
-* Late 2021 skins use MakiDonalds skin mods, Early 2022 skins use BlooXoo skin mods
-* Latest 2022 skins use this [BG](https://antix.s-ul.eu/TiPtPaNM)
+ Note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
+ Late 2021 skins use MakiDonalds skin mods, Early 2022 skins use BlooXoo skin mods
+ Latest 2022 skins use this [BG](https://antix.s-ul.eu/TiPtPaNM)
 </p>
 # Message me **__ONLY__** if a link is broken or something isn't updated or wrong 
 Discord: Antix#0002
