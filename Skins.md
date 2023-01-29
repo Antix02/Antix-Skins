@@ -1,7 +1,7 @@
 # *antix swag skins*
 last updated <b>2023-01-28</b>
 
-[profile](https://osu.ppy.sh/users/12455534)
+[osu profile](https://osu.ppy.sh/users/12455534)
  * note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
  * late 2021 skins use MakiDonalds skin mods, early 2022 skins use BlooXoo skin mods
  * latest 2022 skins use this [bg](https://antix.s-ul.eu/TiPtPaNM)
