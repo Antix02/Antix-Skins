@@ -4,7 +4,7 @@ last updated <b>2023-01-28</b>
  * late 2021 skins use MakiDonalds skin mods, Early 2022 skins use BlooXoo skin mods
  * latest 2022 skins use this [BG](https://antix.s-ul.eu/TiPtPaNM)
  * message me only if a link is broken or something isn't updated or wrong 
-<b>discord: Antix#0002</b>
+<b>discord: antix#0002</b>
 
 # [- jasonrobbedmalis](https://antix.s-ul.eu/C3VBkkFz)
 ![](https://osu.ppy.sh/ss/18290774/b0ae)
