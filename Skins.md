@@ -7,6 +7,9 @@ last updated <b>2023-01-28</b>
  * latest 2022 skins use this [bg](https://antix.s-ul.eu/TiPtPaNM)
  * message me only if a link is broken or something isn't updated or wrong <b>(discord: antix#0002)</b>
 
+# [bubbleman 19-03-10 antix edit](https://antix.s-ul.eu/SMi3jmu6)
+![](https://osu.ppy.sh/ss/18403795/cf47)
+
 # [frost toy antix edit](https://antix.s-ul.eu/VChBkiiC)
 ![](https://osu.ppy.sh/ss/18403792/fa8d)
 
