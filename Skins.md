@@ -7,6 +7,15 @@ last updated <b>2023-01-28</b>
  * latest 2022 skins use this [bg](https://antix.s-ul.eu/TiPtPaNM)
  * message me only if a link is broken or something isn't updated or wrong <b>(discord: antix#0002)</b>
 
+# [- swad](https://antix.s-ul.eu/LMkqtsBo)
+![](https://osu.ppy.sh/ss/18509728/56b8)
+
+# [✿](https://antix.s-ul.eu/crDfvvnE)
+![](https://osu.ppy.sh/ss/18509721/48a1)
+
+# [imagine 2019](https://antix.s-ul.eu/bX1XplYk)
+![](https://osu.ppy.sh/ss/18509714/2e75)
+
 # [lifeline dt](https://drive.google.com/drive/folders/1erv2GM3rsEePc4MU7g2AcAaEN-JMgVte)
 ![](https://osu.ppy.sh/ss/18509709/d683)
 
