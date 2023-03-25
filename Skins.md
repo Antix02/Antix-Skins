@@ -62,7 +62,7 @@ last updated <b>2023-01-28</b>
 ![](https://osu.ppy.sh/ss/17211196/dca7)
 
 # [tekkito (green cursor)](https://antix.s-ul.eu/w2QDa9k1) 
-![](https://osu.ppy.sh/ss/17123769/1227)
+![](https://nikzz-tea.github.io/osu-skins/previews/tekkito.jpg)
 
 # [☆ (Vaxei style)](https://antix.s-ul.eu/uOU1pwNTc) 
 ![](https://osu.ppy.sh/ss/18509680/8d9a)
