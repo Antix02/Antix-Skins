@@ -71,7 +71,7 @@ last updated <b>2023-01-28</b>
 ![](https://osu.ppy.sh/ss/17017336/f061)
 
 # [☆✧ (Varv style)](https://antix.s-ul.eu/eUDfQkag) 
-![](https://osu.ppy.sh/ss/17017358/3e89)
+![](https://osu.ppy.sh/ss/18509677/ef13)
 
 # [☆ω (Delis style)](https://antix.s-ul.eu/BN9yY7fx)
 ![](https://osu.ppy.sh/ss/17017372/aed4)
