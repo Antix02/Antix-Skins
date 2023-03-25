@@ -1,5 +1,5 @@
 # *antix swag skins*
-last updated <b>2023-01-28</b>
+last updated <b>2023-03-25</b>
 
 [osu profile](https://osu.ppy.sh/users/12455534)
  * note that most of these skins are mixed or borrow some element from other creators please go and download the main skin and support them if you can!
