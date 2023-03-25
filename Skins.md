@@ -65,7 +65,7 @@ last updated <b>2023-01-28</b>
 ![](https://osu.ppy.sh/ss/17123769/1227)
 
 # [☆ (Vaxei style)](https://antix.s-ul.eu/uOU1pwNTc) 
-![](https://osu.ppy.sh/ss/17017303/7fed)
+![](https://osu.ppy.sh/ss/18509680/8d9a)
 
 # [☆〃 (BTMC style)](https://antix.s-ul.eu/aEpzwrGy) 
 ![](https://osu.ppy.sh/ss/17017336/f061)
