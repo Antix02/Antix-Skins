@@ -11,7 +11,7 @@ last updated <b>2023-01-28</b>
 ![](https://osu.ppy.sh/ss/18403795/cf47)
 
 # [frost toy antix edit](https://antix.s-ul.eu/VChBkiiC)
-![](https://osu.ppy.sh/ss/18403792/fa8d)
+![](https://osu.ppy.sh/ss/18509702/ba25)
 
 # [frost antix edit (stole from reused/tko)](https://antix.s-ul.eu/Bibi4r6y)
 ![](https://osu.ppy.sh/ss/18403781/b4ac) 
