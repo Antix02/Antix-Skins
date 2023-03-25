@@ -44,7 +44,7 @@ last updated <b>2023-01-28</b>
 ![](https://i.imgur.com/YULitvx.png)
 
 # [ika (antix edit)](https://antix.s-ul.eu/r7UBzR4Q)
-![](https://osu.ppy.sh/ss/17894946/84b0)
+![](https://osu.ppy.sh/ss/18509691/4935)
 
 # [shield (antix edit)](https://antix.s-ul.eu/ZzZ2I0Ow)
 ![](https://osu.ppy.sh/ss/17894939/27a8)
